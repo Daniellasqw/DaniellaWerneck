@@ -1,4 +1,4 @@
-### <h1 style="color:;">Olá! Eu sou a Daniella Werneck 🖐️
+### <h1 style="color:#FF007F">Olá! Eu sou a Daniella Werneck 🖐️
 <br>
 
 
